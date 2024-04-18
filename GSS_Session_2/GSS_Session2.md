@@ -1,1 +1,1 @@
-[Google Drive Dosyası](https://docs.google.com/spreadsheets/d/16gIRhNKAr5lfzLAkkcdqSz9cwtCCQSAfaP7TmXA0JW4/edit?usp=sharing)
+[Session-2 Google Drive Dosyası](https://docs.google.com/spreadsheets/d/1OF2InoP8HyVhE7he2KwH-UovmLGFVBx1mG3WERJ7L4o/edit?usp=sharing)
